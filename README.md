@@ -9,3 +9,5 @@ IG : @rafiiariyanto
 LinkedIn : Richmondjanusrafiiaryanto
 
 ![Alt Teks](https://github.com/Richmondjanusrafiiaryanto/Perkenalan-Diri/blob/master/DSC_0584.JPG)
+
+Maaf ya pak telat hehehe:)
